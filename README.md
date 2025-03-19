@@ -50,3 +50,10 @@ This project is licensed under the MIT License.
 ---
 💡 *Let's combat deforestation with AI-driven solutions!* 🌱🚀
 
+![Screenshot 2025-03-20 002654](https://github.com/user-attachments/assets/aa6bc8f4-5391-401b-9278-b773cbd4fc45)
+
+![Screenshot 2025-03-20 002702](https://github.com/user-attachments/assets/2bee6246-c245-4453-abf8-79bf9b4b2c61)
+
+![Screenshot 2025-03-20 001945](https://github.com/user-attachments/assets/e70c15e5-973f-4e44-b327-90e60a52dfef)
+
+
